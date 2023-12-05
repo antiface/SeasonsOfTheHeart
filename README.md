@@ -1,4 +1,4 @@
-# SeasonsOfTheHeart
+# Seasons Of The Heart
 *"Seasons of The Heart" is a new, secular liturgy from interdisciplinary artist-researcher A.G.*
 
 *2023-12-05 14:40:24*
