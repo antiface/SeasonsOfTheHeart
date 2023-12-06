@@ -27,19 +27,19 @@ __*Seasons of The Heart:*__
 4. Autumn of Atonement;
 
 1. The Heart Alone Knows Truth;
-  a) The Heart is Alone;
-  b) Only the Heart Can Know Truth;
+    * a) The Heart is Alone;
+    * b) Only the Heart Can Know Truth;
 2. The Heart is of (Infinite) Resolve;
-  a) The Heart is Resolute;
+    * a) The Heart is Resolute;
 3. The Heart’s Calling is To Love;
-  a) Ardor is of the Heart;
-  b) Simplicity of Heart / Purity of Heart is the Direct Pathway to Earthly Knowledge of Truth;
+    * a) Ardor is of the Heart;
+    * b) Simplicity of Heart / Purity of Heart is the Direct Pathway to Earthly Knowledge of Truth;
 4. The Heart Alone Knows Peace;
-  a) Stillness (hesychia) is of the Heart;
+    * a) Stillness (hesychia) is of the Heart;
 5. The Heart’s Purpose is To Give;
-  a) Selfless Service is of the Heart;
+    * a) Selfless Service is of the Heart;
 6. Keep Watch Over the Heart;
-  a) Guard The Heart (nepsis): Only Then Can It Know Lasting Peace, Love, Resolve.
+    * a) Guard The Heart (nepsis): Only Then Can It Know Lasting Peace, Love, Resolve.
 
 - - - - - - - - - -
 
