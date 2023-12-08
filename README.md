@@ -41,7 +41,7 @@ __*Seasons of The Heart:*__
 6. Keep Watch Over the Heart;
     * a) Guard The Heart (nepsis): Only Then Can It Know Lasting Peace, Love, Resolve.
 
-[![SEASONS OF THE HEART](https://historiotheque.files.wordpress.com/2023/12/alex_w_rose_20nov23a-15h25a.png)](https://www.youtube.com/playlist?list=PLrwvc22vCTEzfV_6ImSZuKlc_RvopqqJL)
+[![SEASONS OF THE HEART](https://historiotheque.files.wordpress.com/2023/12/alex_w_rose_20nov23a-15h25a_600px_wide.png)](https://www.youtube.com/playlist?list=PLrwvc22vCTEzfV_6ImSZuKlc_RvopqqJL)
 
 - - - - - - - - - -
 
